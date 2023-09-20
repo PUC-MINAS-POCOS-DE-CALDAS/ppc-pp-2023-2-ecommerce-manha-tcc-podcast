@@ -1,3 +1,10 @@
+### Grupo
+1. Ana Clara Reis
+2. Ana Elisa Lima
+3. Evandro Lago
+4. Júlia Carvalho
+5. Maria Júlia Ficher
+
 # Atividades da disciplina E-commerce
 
 Olá, pessoal. Tudo bem?
