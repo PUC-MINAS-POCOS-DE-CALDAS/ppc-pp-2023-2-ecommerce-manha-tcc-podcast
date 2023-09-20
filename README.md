@@ -5,6 +5,8 @@
 4. Júlia Carvalho
 5. Maria Júlia Ficher
 
+LALALALALALA
+
 # Atividades da disciplina E-commerce
 
 Olá, pessoal. Tudo bem?
